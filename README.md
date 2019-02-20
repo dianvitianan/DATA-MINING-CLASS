@@ -1,0 +1,2 @@
+# DATA-MINING-CLASS
+Dian Vitiana Ningrum (06211540000020)
